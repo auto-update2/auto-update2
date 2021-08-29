@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @auto-update2
+- 👀 I’m interested in GitHub
